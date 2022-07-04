@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RSession27
 - 👀 I’m interested in ... finding a website programmer for my business.
-- 🌱 I’m currently learning ... Affiliate marketing.
+- 🌱 I’m currently looking to teach newbies ... Affiliate marketing.
 - 💞️ I’m looking to collaborate on ... a new software system creation.
 - 📫 How to reach me ... marshionsmajestic@gmail.com.
 
